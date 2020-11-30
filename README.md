@@ -4,8 +4,8 @@
 English
 
 Hi, I'm selling 20 Million Gold on Mystel since i have too much and dont need it anymore. If you want some more information feel free to add me on Discord: Buzzinglizard74#0990
-
-Price = 9$ per 1 Million
+Special offer!!!
+Price = 8$ per 1 Million
 
 Available = 15 Million
 
