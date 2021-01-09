@@ -7,7 +7,7 @@ Hi, I'm selling 20 Million Gold on Mystel since i have too much and dont need it
 
 Special offer!!!
 
-Price = 7$ per 1 Million
+Price = 7 $ for 1 Million
 
 Available = 15 Million
 
