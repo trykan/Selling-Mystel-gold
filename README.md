@@ -9,7 +9,7 @@ Special offer!!!
 
 Price = 7 $ for 1 Million
 
-Available = 15 Million
+Available = 10 Million
 
 Payment options are only Paypal since its the most comon
 I'm up for trading low amounts if you dont trust me.
