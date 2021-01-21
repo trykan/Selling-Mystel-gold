@@ -14,3 +14,5 @@ Payment options are only Paypal since its the most comon
 I'm up for trading low amounts if you dont trust me.
 
 Thanks for reading!
+
+already sold: 16 million
