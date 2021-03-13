@@ -8,11 +8,11 @@ Hi, I'm selling 20 Million Gold on Mystel since i have too much and dont need it
 
 Price = 10 $ for 1 Million
 
-Available = 10 Million
+Available = 0 Million
 
 Payment options are only Paypal since its the most comon
 I'm up for trading low amounts if you dont trust me.
 
 Thanks for reading!
 
-already sold: 23 million
+already sold: 33 million
