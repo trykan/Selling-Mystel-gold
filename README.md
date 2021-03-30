@@ -3,16 +3,17 @@
 
 English
 
-Hi, I'm selling 20 Million Gold on Mystel since i have too much and dont need it anymore. If you want some more information feel free to add me on Discord: Buzzinglizard74#0990
+Hi, I'm selling Gold on Mystel
+Add me on Discord: Trykan#9306
 
 
 Price = 10 $ for 1 Million
 
-Available = 0 Million
+Available = 7 Million (might go up in time)
 
-Payment options are only Paypal since its the most comon
-I'm up for trading low amounts if you dont trust me.
+Payment is only via PayPal
+We can trade 1 million at a time for ur safety
 
-Thanks for reading!
+Thanks for ur time
 
-already sold: 33 million
+already sold: 9 million
