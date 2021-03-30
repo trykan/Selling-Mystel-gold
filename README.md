@@ -1,8 +1,6 @@
 # Selling-Eu-Mystel-gold
 
 
-English
-
 Hi, I'm selling Gold on Mystel
 Add me on Discord: Trykan#9306
 
